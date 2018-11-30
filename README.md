@@ -1,2 +1,2 @@
 # girls-coding-club
-IM CHANGING IT
+i'm gonna cry omg
